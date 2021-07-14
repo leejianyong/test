@@ -9,4 +9,4 @@
 
 Jianyong
 
-sohai khai
+Sohai Jian Yong
